@@ -4,5 +4,5 @@
 
 🌈 If you are interested in joining us (we hire talents periodically) or investing, please contact hr@unicodedigital.com.
 
-👩‍💻 Our official linkedin is https://www.linkedin.com/company/unicodedigital/ and official website is https://unicodedigital.github.io/. Follow our offcial account and stay tuned!
+👩‍💻 Our official linkedin is https://www.linkedin.com/company/unicodedigital/ and official website is https://www.unicodedigital.com/. Follow our offcial account and stay tuned!
 
